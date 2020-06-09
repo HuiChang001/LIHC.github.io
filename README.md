@@ -1,2 +1,0 @@
-# LiHuiChang.github.io
-personal
